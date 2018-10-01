@@ -1,4 +1,4 @@
 # Database-Management-Systems
 Tugas pak bana
 
-Izin dulu 
+Selain pak bana, dilarang masuk :v
